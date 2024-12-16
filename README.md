@@ -1,1 +1,1 @@
-# satyajeet-das-information.github.io
+# satyajeet.das.info.github.io
